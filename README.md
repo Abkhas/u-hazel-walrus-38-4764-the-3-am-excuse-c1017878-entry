@@ -1,0 +1,3 @@
+# u-hazel-walrus-38-4764-the-3-am-excuse-c1017878-entry
+
+make.fun bounty entry.
